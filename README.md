@@ -1,5 +1,3 @@
-Luan Kayllon
-
-Servidor: https://discord.gg/kYNQzCk2Gx
+<h1>oi</h1>
 
 
